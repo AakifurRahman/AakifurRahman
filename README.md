@@ -12,6 +12,6 @@ And of course if you want to be part of any of my projects go ahead and contribu
 
 Some places where you can find me
 
-- [Linkedin](www.linkedin.com/in/aakifur-rahman)
+- [Linkedin](https://www.linkedin.com/in/aakifur-rahman)
 - [Github @AakifurRahman](https://github.com/AakifurRahman) (This one)
 - [Twitter @ThisIsAakifur](https://twitter.com/ThisIsAakifur) (Not so active here)
