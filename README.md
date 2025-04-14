@@ -9,7 +9,3 @@ You can find me at:
 - [Linkedin](https://www.linkedin.com/in/aakifur-rahman)
 - [Github @AakifurRahman](https://github.com/AakifurRahman) (This one)
 - [Instagram](https://www.instagram.com/maakifurrahman/)
-
-Feel Free to check out my YouTube Lectures
-
-- [YouTube](https://www.youtube.com/channel/UCx9YsNfjMBirRvm1K5qfJCQ)
